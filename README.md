@@ -1,0 +1,1 @@
+Da kiekste, wa?
